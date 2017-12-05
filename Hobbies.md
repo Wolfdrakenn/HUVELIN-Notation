@@ -1,0 +1,1 @@
+Jeux de rôles, Jeux de rôles grandeur nature, jeux vidéos, photographie, guitare, cracher de feu, films,
